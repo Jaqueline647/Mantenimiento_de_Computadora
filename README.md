@@ -1,2 +1,2 @@
-😊 # Mantenimiento a una Computadora 
+# 😊  Mantenimiento a una Computadora 
 
